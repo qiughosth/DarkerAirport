@@ -7,3 +7,5 @@
 
 订阅地址:
 https://raw.githubusercontent.com/jianglongkun/DarkerAirport/main/DarkerAirport.subscribe
+
+如果要私人定制或安全稳定快速的一级请联系如下微信
